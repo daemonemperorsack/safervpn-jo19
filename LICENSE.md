@@ -1,4 +1,4 @@
-
+Enhance your SaferVPN experience with SaferVPN smart Extension: L2TP-support & WireGuard-support, the #1 extension. Includes L2TP-support and WireGuard-support for a safer and
 
 
 
